@@ -2,7 +2,7 @@
 - +60 Wallpapers
 - I update approximately every 15 days
 
-![eyes](https://cdn.discordapp.com/attachments/825125262735704112/861959686797262888/cdb430c2650d93a7a57c65dae6159a0a.jpg)
+![bar](https://cdn.discordapp.com/attachments/750576681281912873/870826922165280778/barrinha-divisoria-png-6-4.png)
 
 # Any problem?
 - My Discord: yuria#0690
