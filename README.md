@@ -1,5 +1,5 @@
 ## Wallpapers
-- +250 Wallpapers
+- +300 Wallpapers
 - I update approximately every 15 images
 - I found all wallpapers in Reddit and Discord
 
